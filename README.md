@@ -1,6 +1,6 @@
 
 ![38248a3958638a803a2dd8d312d69fcf](https://github.com/user-attachments/assets/9e0a6415-3207-4bec-a207-a01b87fc7cf1)
-------------------------- " -------------------------
+" -------------------------
 
 <!--
 **unsalted-crumbs/unsalted-crumbs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
