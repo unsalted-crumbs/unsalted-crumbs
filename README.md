@@ -1,4 +1,5 @@
 ## wip
+![alt text](https://github.com/[username]/[reponame]/blob/[branch]/image.jpg?raw=true)
 
 <!--
 **unsalted-crumbs/unsalted-crumbs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
