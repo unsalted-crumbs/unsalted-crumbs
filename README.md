@@ -13,7 +13,7 @@ I am open to any compliments and such!! if i dont reply to your its either a cro
 C+H is fine unless my skin says dnt.
 If my skin does say dnt, please take it seriously!! This is controversal but i really dont like when people touch/cover my skin after i've worked hard to make it.
 
-![Screenshot_2025-02-01_11 54 56_AM-removebg-preview](https://github.com/user-attachments/assets/15b60af1-ecca-441a-a633-8f2607d566cd)
+![f36830414483dbe9321fdcb8a5b6b973-removebg-preview](https://github.com/user-attachments/assets/ea1a854d-fba7-4922-a875-598dec59c13d)
 
 𝑫𝑵𝑰 !!
 
