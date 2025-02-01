@@ -12,6 +12,8 @@
 I am open to any compliments and such!! if i dont reply to your its either a crown or i am non verbal!!
 C+H is fine unless my skin says dnt.
 If my skin does say dnt, please take it seriously!! This is controversal but i really dont like when people touch/cover my skin after i've worked hard to make it.
+![85ba3f56aab41e9099fb5255ecd5cc4e-removebg-preview](https://github.com/user-attachments/assets/cf756f1a-55d6-432e-a48b-a54d764525ba)
+
 𝑫𝑵𝑰 !!
 
 ᔕ  𝘏𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘪𝘤,
