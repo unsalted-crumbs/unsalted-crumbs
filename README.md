@@ -19,8 +19,7 @@ If my skin does say dnt, please take it seriously!! This is controversal but i r
 
 ᔕ  𝘏𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘪𝘤,
 
-ᔕ 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘪𝘤                                                                              ![pony-town-drawing w2i-fly-blinking-padded-ponyplush-5x](https://github.com/user-attachments/assets/5b63a310-d158-4987-8589-907c5ea0ad27)
-
+ᔕ 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘪𝘤
 
 !! 𝘙𝘢𝘤𝘪𝘴𝘵, 𝘚𝘦𝘹𝘪𝘴𝘵, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵, 𝘋𝘪𝘴𝘤𝘳𝘪𝘮𝘪𝘯𝘢𝘵𝘪𝘰𝘯, 𝘦𝘵𝘤.
 
@@ -40,6 +39,8 @@ w2i - Whisper To Interact
 syn - Synpath (heavily relating to a character to the point you feel connected to them)
 iw(e)c - Interact with (extreme) caution
 iwcare - Interact with care
+   ![pony-town-drawing w2i-boop-fly-blinking-padded-5x](https://github.com/user-attachments/assets/21507998-a9f0-42f2-853a-d0401cc7e21a) ![pony-town-暁美-fly-blinking-padded-5x](https://github.com/user-attachments/assets/ad5f4e09-4e03-4f0b-85b2-2291a975404c)
+ 
 
 <!--
 -->
