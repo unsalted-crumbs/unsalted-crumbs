@@ -18,13 +18,28 @@ If my skin does say dnt, please take it seriously!! This is controversal but i r
 𝑫𝑵𝑰 !!
 
 ᔕ  𝘏𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘪𝘤,
-ᔕ 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘪𝘤 > 𝘙𝘢𝘤𝘪𝘴𝘵, 𝘚𝘦𝘹𝘪𝘴𝘵, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵, 𝘋𝘪𝘴𝘤𝘳𝘪𝘮𝘪𝘯𝘢𝘵𝘪𝘰𝘯, 𝘦𝘵𝘤.
+
+ᔕ 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘪𝘤 
+
+> 𝘙𝘢𝘤𝘪𝘴𝘵, 𝘚𝘦𝘹𝘪𝘴𝘵, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵, 𝘋𝘪𝘴𝘤𝘳𝘪𝘮𝘪𝘯𝘢𝘵𝘪𝘰𝘯, 𝘦𝘵𝘤.
 
 ᔕ 𝘐𝘯𝘷𝘢𝘭𝘪𝘥𝘢𝘵𝘦 𝘈 𝘗𝘦𝘳𝘴𝘰𝘯'𝘴 𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴 / 𝘎𝘦𝘯𝘥𝘦𝘳 / 𝘐𝘥𝘦𝘯𝘵𝘪𝘵𝘺
 
 ᔕ 𝘗𝘦𝘥𝘰𝘱𝘩𝘪𝘭𝘦, 𝘚𝘦𝘹𝘶𝘢𝘭𝘪𝘻𝘦𝘴 𝘔𝘪𝘯𝘰𝘳𝘴, 𝘑𝘰𝘬𝘦𝘴 𝘈𝘣𝘰𝘶𝘵 𝘙×𝘱𝘦, 𝘦𝘵𝘤. 𝘚𝘶𝘱𝘱𝘰𝘳𝘵𝘴, 𝘱𝘢𝘳𝘵𝘪𝘤𝘪𝘱𝘢𝘵𝘦𝘴, 𝘵𝘰𝘭𝘦𝘳𝘢𝘵𝘦𝘴, 𝘰𝘳 𝘫𝘶𝘴𝘵𝘪𝘧𝘺 𝘢𝘯𝘺 𝘰𝘧 𝘵𝘩𝘦 𝘢𝘣𝘰𝘷𝘦.
 
 𝘧𝘶𝘫𝘰𝘴𝘩𝘪'𝘴..... 𝘨𝘦𝘵 𝘰𝘶𝘵..
+
+keywords :
+dnuif - Do Not Interact Unless Friends
+sv - Semi Verbal
+ltm - Listening To Music (i might not want to be disturbed)
+nv - Non Verbal
+Dnt - Do Not Touch
+w2i - Whisper To Interact
+syn - Synpath (heavily relating to a character to the point you feel connected to them)
+iw(e)c - Interact with (extreme) caution
+iwcare - Interact with care
+
 <!--
 **unsalted-crumbs/unsalted-crumbs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
