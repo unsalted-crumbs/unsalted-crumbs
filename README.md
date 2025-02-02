@@ -30,15 +30,27 @@ If my skin does say dnt, please take it seriously!! This is controversal but i r
 > 𝘧𝘶𝘫𝘰𝘴𝘩𝘪'𝘴..... 𝘨𝘦𝘵 𝘰𝘶𝘵..
 
 keywords :
+
 dnuif - Do Not Interact Unless Friends
+
 sv - Semi Verbal
+
 ltm - Listening To Music (i might not want to be disturbed)
+
 nv - Non Verbal
+
 Dnt - Do Not Touch
+
 w2i - Whisper To Interact
+
 syn - Synpath (heavily relating to a character to the point you feel connected to them)
+
 iw(e)c - Interact with (extreme) caution
+
 iwcare - Interact with care
+
+
+
    ![pony-town-drawing w2i-boop-fly-blinking-padded-5x](https://github.com/user-attachments/assets/21507998-a9f0-42f2-853a-d0401cc7e21a) ![pony-town-暁美-fly-blinking-padded-5x](https://github.com/user-attachments/assets/ad5f4e09-4e03-4f0b-85b2-2291a975404c)
  
 
