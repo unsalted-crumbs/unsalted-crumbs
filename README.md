@@ -43,7 +43,7 @@ Dnt - Do Not Touch
 
 w2i - Whisper To Interact
 
-syn - Synpath (heavily relating to a character to the point you feel connected to them)
+syn - Synpath (relates very strongly/deeply with a fictional character, i don't see that person as myself)
 
 iw(e)c - Interact with (extreme) caution
 
