@@ -45,7 +45,7 @@ W2I - Whisper To Interact
 
 syn - SYNpath (relates very strongly/deeply with a fictional character, i don't see that person as myself)
 
-iw(e)c - Interact with (extreme) caution
+iw(e)c - Interact With (Extreme) Caution
 
 iwcare - Interact with care
 
