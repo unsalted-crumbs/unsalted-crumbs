@@ -9,7 +9,7 @@
 ![408812275-41b64c5c-c33a-437a-b3a6-5f807b744650-removebg-preview](https://github.com/user-attachments/assets/22aeaf59-0b54-4999-aa93-4c0b5b49cb9d)
 
 
-I am open to any compliments and such!! if i dont reply to your its either a crown or i am non verbal!!
+I am open to any compliments and such!! if i dont reply to your its either a crown or i don't want to talk ,, ,, 
 C+H is fine unless my skin says dnt.
 If my skin does say dnt, please take it seriously!! This is controversal but i really dont like when people touch/cover my skin after i've worked hard to make it.
 
