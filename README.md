@@ -12,7 +12,8 @@
 I am open to any compliments and such!! if i dont reply to your its either a crown or i don't want to talk ,, ,, 
 C+H is fine unless my skin says dnt.
 If my skin does say dnt, please take it seriously!! This is controversal but i really dont like when people touch/cover my skin after i've worked hard to make it.
-____-_____-______-_____-_____-____
+
+
 Interests!!
 
 " PMMM !!!
