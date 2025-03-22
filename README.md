@@ -15,12 +15,19 @@ If my skin does say dnt, please take it seriously!! This is controversal but i r
 --------------------------
 Interests!!
 " PMMM !!!
+
 " Ateez !!!
+
 " Vocaloid !!!!11!!!1
+
 " PePoYo !!!
+
 " MCR (My Chemical Romance)
+
 " Our walk home (owh)
+
 " Of Dark Lords And Cabbages (odfac)
+
 " Conan Gray
 
 ![f36830414483dbe9321fdcb8a5b6b973-removebg-preview](https://github.com/user-attachments/assets/ea1a854d-fba7-4922-a875-598dec59c13d)
