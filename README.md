@@ -22,7 +22,8 @@ Interests!!
 " Ateez !!!
 
 " Vocaloid !!!!11!!!1
-" PePoYo !!!               ![pony-town-github no color teto-trot-padded-4x](https://github.com/user-attachments/assets/6321c202-a3d7-4656-a1c3-0d984c386307)
+
+" PePoYo !!!         
 
 " MCR (My Chemical Romance)
 
@@ -70,8 +71,7 @@ iwcare - Interact with care
 
 
 
-   ![pony-town-drawing w2i-boop-fly-blinking-padded-5x](https://github.com/user-attachments/assets/21507998-a9f0-42f2-853a-d0401cc7e21a) ![pony-town-暁美-fly-blinking-padded-5x](https://github.com/user-attachments/assets/ad5f4e09-4e03-4f0b-85b2-2291a975404c)
- 
-
+![pony-town-github color teto-trot-padded-4x](https://github.com/user-attachments/assets/5293d6e5-c901-4af9-9136-3dd688ae1ca0)
+    ![pony-town-github no color teto-trot-padded-4x](https://github.com/user-attachments/assets/6321c202-a3d7-4656-a1c3-0d984c386307)
 <!--
 -->
