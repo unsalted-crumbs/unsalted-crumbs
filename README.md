@@ -22,9 +22,7 @@ Interests!!
 " Ateez !!!
 
 " Vocaloid !!!!11!!!1
-
-" PePoYo !!!                                 ![pony-town-github no color teto-trot-padded-6x](https://github.com/user-attachments/assets/b98789eb-6b79-442d-a33a-0b90d7e5eba7)
-
+" PePoYo !!!               ![pony-town-github no color teto-trot-padded-4x](https://github.com/user-attachments/assets/6321c202-a3d7-4656-a1c3-0d984c386307)
 
 " MCR (My Chemical Romance)
 
