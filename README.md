@@ -11,8 +11,7 @@
 
 I am open to any compliments and such!! if i dont reply to your message its either a crown or i don't want to talk ,, ,, 
 C+H is fine unless my skin says dnt.
-If my skin does say dnt, please take it seriously!! This is controversal but i really dont like when people touch/cover my skin after i've worked hard to make it.
-
+If my skin does say dnt, please take it seriously!! This is controversal but i really dont like when people touch/cover my skin. if it doesn't bother you just respect it!
 ,, ,, ,, ,, ,, ,, 
 
 Interests!!
@@ -29,7 +28,7 @@ Interests!!
 
 " Our walk home (owh)
 
-" Of Dark Lords And Cabbages (odfac , dlac , dlc)
+" Of Dark Lords And Cabbages (odlac , dlac , dlc)
 
 " Conan Gray
 
@@ -41,33 +40,29 @@ Interests!!
 
 ᔕ 𝘔𝘪𝘴𝘰𝘨𝘺𝘯𝘪𝘴𝘵𝘪𝘤
 
-!! 𝘙𝘢𝘤𝘪𝘴𝘵, 𝘚𝘦𝘹𝘪𝘴𝘵, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵, 𝘋𝘪𝘴𝘤𝘳𝘪𝘮𝘪𝘯𝘢𝘵𝘪𝘰𝘯, 𝘦𝘵𝘤.
-
-ᔕ 𝘐𝘯𝘷𝘢𝘭𝘪𝘥𝘢𝘵ion of a 𝘗𝘦𝘳𝘴𝘰𝘯'𝘴 𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴 / 𝘎𝘦𝘯𝘥𝘦𝘳 / 𝘐𝘥𝘦𝘯𝘵𝘪𝘵𝘺
+!! 𝘙𝘢𝘤𝘪𝘴𝘵, 𝘚𝘦𝘹𝘪𝘴𝘵, 𝘈𝘣𝘭𝘦𝘪𝘴𝘵, 𝘋𝘪𝘴𝘤𝘳𝘪𝘮𝘪𝘯𝘢𝘵𝘪ve, 𝘦𝘵𝘤.
 
 ᔕ 𝘗𝘦𝘥𝘰𝘱𝘩𝘪𝘭𝘦, 𝘚𝘦𝘹𝘶𝘢𝘭𝘪𝘻𝘦𝘴 𝘔𝘪𝘯𝘰𝘳𝘴, 𝘑𝘰𝘬𝘦𝘴 𝘈𝘣𝘰𝘶𝘵 𝘙×𝘱𝘦, 𝘦𝘵𝘤.
 
- , 𝘚𝘶𝘱𝘱𝘰𝘳𝘵𝘴, 𝘱𝘢𝘳𝘵𝘪𝘤𝘪𝘱𝘢𝘵𝘦𝘴, 𝘵𝘰𝘭𝘦𝘳𝘢𝘵𝘦𝘴, 𝘰𝘳 𝘫𝘶𝘴𝘵𝘪𝘧𝘺 𝘢𝘯𝘺 𝘰𝘧 𝘵𝘩𝘦 𝘢𝘣𝘰𝘷𝘦.
-
-> 𝘧𝘶𝘫𝘰𝘴𝘩𝘪'𝘴..... 𝘨𝘦𝘵 𝘰𝘶𝘵..
+> 𝘧𝘶𝘫𝘰𝘴𝘩𝘪'𝘴... /lh.. 
 
 keywords :
 
-dnuif - Do Not Interact Unless Friends
+dniuif - Do Not Interact Unless Friends
 
-ltm - Listening To Music (i might not want to be disturbed)
-
-nv - Non Verbal
+dniuc - Do Not Interact Unless Close
 
 Dnt - Do Not Touch
 
 W2I - Whisper To Interact
 
-syn - SYNpath (relates very strongly/deeply with a fictional character, i don't see that person as myself. very different from fictkins.)
-
 iw(e)c - Interact With (Extreme) Caution
 
 iwcare - Interact with care
+
+
+
+note: if i am sitting with someone please don't join me or them it makes both of us uncomfortable. thanks!
 
 
 
